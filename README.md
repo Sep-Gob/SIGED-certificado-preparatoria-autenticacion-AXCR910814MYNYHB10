@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AXCR910814MYNYHB10
+AXCR910814MYNYHB10
